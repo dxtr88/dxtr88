@@ -23,7 +23,7 @@ Hello there! I'm a tech enthusiast and an aspiring deep learning specialist with
 ## 🤝 Collaboration
 I'm always open to collaborating on technically challenging projects that push the boundaries of innovation. If you're working on something exciting, let's connect!  
 
-📬 **Reach me on Discord**: It's the best way to get in touch since I rarely use other social media platforms.  
+📬 **Reach me on Discord**: It's the best way to get in touch since I rarely use other social media platforms. "dxxtr."
 
 ---
 
